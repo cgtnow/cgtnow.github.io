@@ -1,4 +1,4 @@
-# Christopher's Resume
+# Resume
 
 ## [Christopher Thompson](https://www.linkedin.com/in/cgtnow/), PSM 
 
